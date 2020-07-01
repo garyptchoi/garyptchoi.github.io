@@ -1,1 +1,0 @@
-# garyptchoi.github.io
